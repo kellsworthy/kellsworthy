@@ -1,4 +1,4 @@
-### Hi, I'm Katie!
+## Hey there, I'm Katie!
 
 🌎 Located in the Twin Cities, Minnesota exurbs  
 🏳️‍🌈 She/Her/Hers pronouns  
